@@ -1,1 +1,1 @@
-# https://monjeydaguineapig.github.io/cool/
+# https://monjeydaguineapig.github.io/CaseohSupermarketSimVideoSeries/
