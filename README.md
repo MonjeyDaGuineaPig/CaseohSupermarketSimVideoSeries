@@ -1,1 +1,1 @@
-# cool
+# https://monjeydaguineapig.github.io/cool/
